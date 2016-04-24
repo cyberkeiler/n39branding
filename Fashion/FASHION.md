@@ -17,3 +17,9 @@ Folgende Simulationen wurden mithilfe der Produktbilder von Manomama erstellt um
 ![V-Neck Rot](shirt-vneck-rot.jpg)
 ![V-Neck Rot](shirt-vneck-weiss.jpg)
 ![V-Neck Rot](shirt-vneck-grau.jpg)
+
+## günstige T-Shirts (Werbemittel Bedarf)
+### Standard T-Shirts (3,27EUR / Stück)
+"Spacestatus: OPEN" - grünes T-Shirt
+[Mindestbestellmenge beachten!](https://www.werbeartikel-discount.com/product_info.php/products_id/75837)
+![V-Neck Rot](shirt-grün.jpg)
